@@ -1,2 +1,1 @@
-# yanulveronika
-For work
+Януль Вероника, 1 группа,ИСиТ
